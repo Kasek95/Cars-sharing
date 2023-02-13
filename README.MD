@@ -1,0 +1,1 @@
+wpisujemy cokolwiek
